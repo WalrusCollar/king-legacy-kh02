@@ -1,4 +1,4 @@
-
+king legacy Scripts no-ban is the best king legacy Script, featuring private server access and unlimited stamina. Safe and powerful for all your
 
 
 
